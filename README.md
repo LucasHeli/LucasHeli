@@ -10,4 +10,4 @@
   
 </div><br\>
 
-Busco conhecimento nesse mundo vasto da programação 😁
+😁
