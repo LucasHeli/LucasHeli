@@ -10,4 +10,4 @@
   
 </div><br\>
 
-Em busca de conhecimento na área da tecnologia 😁
+Busco conhecimento nesse mundo vasto da programação 😁
